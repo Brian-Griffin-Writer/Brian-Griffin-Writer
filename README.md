@@ -5,6 +5,6 @@ Welcome to the home of Brian Griffin, your favorite canine philosopher, aspiring
 Here you will find:
 - Snarky commentary on the happenings in Quahog
 - Hilarious interactions with my friends and family
-- My latest attempts at writing a best-seller 
+- My latest attempts at writing a best-seller
 
 Join me on this journey filled with laughs, love, and a bit of mayhem! You might just find that dogs really do have the best insights on life (and maybe a few too many martinis).
